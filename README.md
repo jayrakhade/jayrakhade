@@ -1,6 +1,6 @@
 # About Me
 
-## 🚀 **Techno-Manager | Data Analyst 
+## 🚀 AI Enthusiast | Techno-Manager | Data Analyst 
 
 Hi there! I'm **Jayant Rakhade**, a **data-driven problem solver** with a strong background in **data analytics, business intelligence, and operational efficiency**. With experience in **techno-managerial roles and energy sector analytics**, I specialize in turning **raw data into meaningful insights** to drive informed decision-making.  
 
